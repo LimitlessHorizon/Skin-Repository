@@ -6,4 +6,6 @@ Click on the skin name for download!
 
 # [SameSkinButWithHDWeirdName](https://dl.dropboxusercontent.com/s/votohftakdfpcqa/SameSkinButHDWeirdName.osk?dl=0)
 
-# [Kodama/morgn](https://dl.dropboxusercontent.com/s/rgqz2jxv14tvgja/-%20kodama%20-%20ryohka.osk?dl=0)
+# [kodama/morgn](https://dl.dropboxusercontent.com/s/rgqz2jxv14tvgja/-%20kodama%20-%20ryohka.osk?dl=0)
+
+# [Blue Rafis/Dinoxe](https://dl.dropboxusercontent.com/s/6cbtleq9z3ou2dg/Prawilnosc%20vDinoxe.osk?dl=0)
