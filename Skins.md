@@ -6,7 +6,7 @@ Click on the skin name for download!
 
 # [Ameliorate/Memories](https://dl.dropboxusercontent.com/s/a2n5mdyqfrt6v4t/-%20%20%20%20Memories.osk?dl=0)
 
-# [SameSkinButWithHDWeirdName](https://dl.dropboxusercontent.com/s/votohftakdfpcqa/SameSkinButHDWeirdName.osk?dl=0)
+# [SameSkinButWithHDWeirdName (the daw skin)](https://dl.dropboxusercontent.com/s/votohftakdfpcqa/SameSkinButHDWeirdName.osk?dl=0)
 
 # [kodama/morgn](https://dl.dropboxusercontent.com/s/rgqz2jxv14tvgja/-%20kodama%20-%20ryohka.osk?dl=0)
 
