@@ -2,6 +2,8 @@
 
 Click on the skin name for download!
 
+# [CXu edit](https://dl.dropboxusercontent.com/s/nhvqebdetrn3ybc/CXkin%20v2.osk?dl=0)
+
 # [Fleurs](https://dl.dropboxusercontent.com/s/ca4jzh1sgo1kn4r/%5B-Fleurs-%5D.osk?dl=0)
 
 # [Ameliorate/Memories](https://dl.dropboxusercontent.com/s/a2n5mdyqfrt6v4t/-%20%20%20%20Memories.osk?dl=0)
