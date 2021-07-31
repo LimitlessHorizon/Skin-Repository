@@ -1,6 +1,6 @@
 # Akamatsu's Private Skin Repository
 
-Click on the skin name for download!
+Click on the names for download!
 
 # [legoshii 80](https://dl.dropboxusercontent.com/s/rwod8mcmesjbp42/legoshii%2080.osk?dl=0)
 
