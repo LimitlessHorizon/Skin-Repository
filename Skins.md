@@ -1,17 +1,9 @@
-# Akamatsu's Skin Repository of Stuff
+# Akamatsu's Private Skin Repository
 
 Click on the skin name for download!
 
-# [CXu edit](https://dl.dropboxusercontent.com/s/nhvqebdetrn3ybc/CXkin%20v2.osk?dl=0)
+# [legoshii 80](https://dl.dropboxusercontent.com/s/rwod8mcmesjbp42/legoshii%2080.osk?dl=0)
 
-# [Fleurs](https://dl.dropboxusercontent.com/s/ca4jzh1sgo1kn4r/%5B-Fleurs-%5D.osk?dl=0)
+# [legoshii 80 edit](https://dl.dropboxusercontent.com/s/k1ws6eqjb4ij2uh/legoshii%2080%20edit.osk?dl=0)
 
-# [Ameliorate/Memories](https://dl.dropboxusercontent.com/s/a2n5mdyqfrt6v4t/-%20%20%20%20Memories.osk?dl=0)
-
-# [SameSkinButWithHDWeirdName (the daw skin)](https://dl.dropboxusercontent.com/s/votohftakdfpcqa/SameSkinButHDWeirdName.osk?dl=0)
-
-# [kodama/morgn](https://dl.dropboxusercontent.com/s/rgqz2jxv14tvgja/-%20kodama%20-%20ryohka.osk?dl=0)
-
-# [Blue Rafis/Dinoxe](https://dl.dropboxusercontent.com/s/6cbtleq9z3ou2dg/Prawilnosc%20vDinoxe.osk?dl=0)
-
-# [cuon azure](https://dl.dropboxusercontent.com/s/bmci9r3jhr5427i/cuon%20and%20azure.osk?dl=0)
+# [legoshii 80 tourney HD](https://dl.dropboxusercontent.com/s/pgo1s8efq7cymmr/legoshii%2080%20tourney%20HD.osk?dl=0)
