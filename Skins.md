@@ -2,6 +2,8 @@
 
 Click on the names for download!
 
-# [legoshii 80](https://dl.dropboxusercontent.com/s/rwod8mcmesjbp42/legoshii%2080.osk?dl=0)
+# [legoshii hallow nomod](https://dl.dropboxusercontent.com/s/ipdikxgf04pg690/legoshii%20hallow%20nomod.osk?dl=0)
 
 # [legoshii 80 edit](https://dl.dropboxusercontent.com/s/k1ws6eqjb4ij2uh/legoshii%2080%20edit.osk?dl=0)
+
+# [subahibi mas edit](https://dl.dropboxusercontent.com/s/ue48jnq7buw6vfg/subahibi%20mas.osk?dl=0)
